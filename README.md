@@ -1,0 +1,1 @@
+# duckfu66.github.io
